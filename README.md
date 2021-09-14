@@ -1,4 +1,4 @@
-Olá! Eu sou o Gus Heck
+Olá! Eu sou o Guga😁
 
 
 - 🔭 Atualmente trabalho como fullstack developer
