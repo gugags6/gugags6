@@ -1,4 +1,4 @@
-Olá! Eu sou o Guga😁
+Olá! Meu nome é Gustávo Santtos😁
 
 
 - 🔭 Atualmente trabalho como fullstack developer
